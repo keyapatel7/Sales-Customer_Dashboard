@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/fa57dcd6-086f-4838-b5d1-5a7795b7996c)
+![image](https://github.com/user-attachments/assets/8bb38841-9021-4a0f-aebd-a6427a198530)
+
 
 # Sales and Customer Dashboards
 
